@@ -12,5 +12,9 @@ It's probably pretty clear that I love going to new places and trying new things
 
 Thus far, I've truly enjoyed Berkeley as a prospective **Civil Engineering major** for the *class of '27*, and am grateful to say that nearly everyone I've met has been a joy to talk to. If you want to talk about anything, feel free to reach out on snap to *m4tteos*
 
+Now for a photo drop. . . 
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/IzgpxPG-h0M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
-Here's a video of my rabbit, Powder, from when I was in highschool.
+*Here's a video of my rabbit, Powder, from when I was in highschool*
+
+
